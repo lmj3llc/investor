@@ -1,0 +1,2 @@
+# investor
+acquire property
